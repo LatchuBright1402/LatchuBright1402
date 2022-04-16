@@ -5,4 +5,5 @@ I'm interested to work in Robotics and AI domain at on-site after completing my 
 I hope I will get it with my consistency on works.
 
 Contact number: +91 9500637207 
-E-mail ID: sblakshmanaprakash@gmail.com
+E-mail ID: lakshmanaprakashs@karunya.edu.in
+Personal Mail ID : sblakshmanaprakash@gmail.com
